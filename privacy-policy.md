@@ -34,8 +34,8 @@ Protegemos tu información con protocolos estándar y cifrado donde aplica.
 ## 6. Derechos de los usuarios
 
 Tienes derecho a acceder, rectificar o borrar tus datos.  
-Para ejercerlos, escríbenos a: privacy@divinemagicgames.com
+Para ejercerlos, escríbenos a: ytesataciondivina@gmail.com
 
 ## 7. Contacto
 
-Si tienes dudas sobre esta política, contáctanos en privacy@divinemagicgames.com
+Si tienes dudas sobre esta política, contáctanos en ytestaciondivina@gmail.com
